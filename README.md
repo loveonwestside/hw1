@@ -24,4 +24,5 @@
 ## Контакты:
  + [*vkontakte*](https://vk.com/id167397883)
  - [*telegram*](https://telegram.me/loveonwestside)
- 
+ + [*instagram*](http://instagram.com/loveonwestside)
+ - email: <loveonwestside@yandex.com>
