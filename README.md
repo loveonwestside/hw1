@@ -1,1 +1,2 @@
-# Komshina-Liza
+#**Всем Привет! Меня зовут Комшина Елизавета.**
+![](https://pp.userapi.com/c625717/v625717883/2887f/s65Zpg4MUOY.jpg)
