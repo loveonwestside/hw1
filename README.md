@@ -9,5 +9,8 @@
  - Я учу испанский, хотя и не была в Испании.
  + Мой любимый город - Амстердам.
 
+
+
 ## Контакты:
  + [*vkontakte*](https://vk.com/id167397883)
+ - [*telegram*](https://telegram.me/loveonwestside)
